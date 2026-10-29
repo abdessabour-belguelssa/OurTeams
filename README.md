@@ -1,2 +1,2 @@
 # OurTeams
-desc
+simo rass betbouta
